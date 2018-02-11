@@ -1,1 +1,0 @@
-# Bitcoin2Bonstics-Converter
